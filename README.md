@@ -1,4 +1,4 @@
-# 👋 Witaj na moim profilu GitHub!
+# 👋 Siema kurwa o chuj ci chodzi?
 
 krakuje aplikacje bankuw pozdro
 
